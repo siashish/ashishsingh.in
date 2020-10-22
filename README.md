@@ -1,2 +1,2 @@
-# ashish2179.github.io
+# ashishsingh.in
 My Personal website
